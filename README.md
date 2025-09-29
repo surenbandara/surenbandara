@@ -23,4 +23,5 @@
 
 ## 📫 Contact
 - [GitHub](https://github.com/surenbandara)  
-- [LinkedIn](https://www.linkedin.com/in/surenbandara)
+- [LinkedIn](https://www.linkedin.com/in/suren-bandara-263167208)
+- [Email] 
